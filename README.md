@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @Pucorra
+- 👀 I’m interested in UI
+- 🌱 I’m currently learning UI / spanish
